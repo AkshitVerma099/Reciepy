@@ -1,0 +1,1 @@
+Take 1 kg carrot. Wash them well and peel the carrots. Grate the carrot. Now cook the carrots and add 2KG milk to the carrots cook the mixture well until the milk is reducedand it mixes with the carrot. At last add sugar according to your taste. Add some vardamam powder and garnish the halwa with cashewnuts and almonds.
